@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Yellowpick10
+- 👀 I’m interested in existing.
+- 🌱 I’m currently learning I don't even know.
+- 💞️ I’m looking to collaborate on some projects.
+- 📫 How to reach me? Yellowpick10#7010
